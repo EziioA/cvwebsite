@@ -1,0 +1,4 @@
+#MGCode
+Kişisel
+
+Mustafa Güdücü
